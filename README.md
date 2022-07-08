@@ -185,6 +185,8 @@ SECCIÓN 10–6 Aplicaciones de la inducción electromagnética
  
  VIDEO
  
+ https://youtu.be/CVOocZihZek
+ 
  CONCLUSIONES
  
 Se logro culminar el proceso con mucho éxito utilizando toda la teoría y ecuaciones vistas en clases e investigadas, nos ayudó mucho a reforzar los temas de magnetismo y electromagnetismo donde se logro concluir que se realizo un buen trabajo con la comprensión de lecturas de libros y lo visto en clase.
